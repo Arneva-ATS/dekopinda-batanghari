@@ -1,1 +1,1 @@
-# dekopinda-batanghari
+# dekopinda-karanganyar
